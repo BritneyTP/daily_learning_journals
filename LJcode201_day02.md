@@ -6,5 +6,5 @@ Although it is proving to be a pain, I am LOVING CSS and the design aspect.
  really helped with that.
  --It hasn't gotten to stressful yet (my fingers are crossed) and I'm optimistic.
  ....
- 
+
  Looking forward to tomorrow! :-)
