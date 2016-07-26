@@ -5,4 +5,4 @@ doing so, and the rest of lab working on what is due today. I'm starting to
 understand, I still refuse to be overwhelmed and I am going to conquer and grasp
 this before this class is over.
 
-#Determined #WatchMeWork #IGotThis
+  #Determined #WatchMeWork #IGotThis
